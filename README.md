@@ -1,2 +1,2 @@
-# Orlyansky-Vladislav-Egenevich-prz-2
-Orlyansky Vladislav Egenevich prz 2
+# ASZII-prz-2
+Группа: ББМО-01-22 Выполнил: Орлянский Владислав Евгеньевич
